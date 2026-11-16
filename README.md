@@ -1,1 +1,0 @@
-# GitHub-Profile-Setup-Challenge-05
